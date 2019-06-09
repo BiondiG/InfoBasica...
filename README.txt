@@ -1,6 +1,8 @@
 "# Clan" 
 "# Clan" 
  
-  1 whatsapp e Email: o whatsapp È um programa cojÛ ointuito È de trasmiÁ„o de mensagens, audios e imagens mas n„o È sÛ isso ele tambem realiza chamdas de audio e vide. O aparelho padr„o que Èutilizado como plataforma para instalaÁ„o do whatsapp È o telefone celular mas n„o se limita apenas a isso, assim podendo ser instalado tambem em computadores.
-  2 As vantagen s„o muitas des de resolver um problema com o PC, a cocequir uma vaga de emprego t„o desejada, j· que uma pessoa que sabe informatica tende a ter mais vantagens no mercado de   emprego, pelo fato de ser um conhecimento t„o necessario e vasto.
-  3 Aplicada a vida proficional a inform·tica se prova muito importante j· que como eu disse antes ela te proporciona mais oportunidades. A inform·tica È algo indispenssavel hoje em dia j· quegrande parte das maquinas posue programaÁ„o. A inform·tica se divide em varios ramos de trabalhon taes como, engenharia sivil e administraÁ„o.
+  1 whatsapp e Email: o whatsapp √© um programa cujo o int√∫ito √© de trasmi√ß√£o de mensagens, audios e imagens mas n√£o √© s√≥ isso,ele tambem realiza chamdas de audio e video. O aparelho padr√£o que √© utilizado como plataforma para instala√ß√£o do whatsapp √© o telefone celular mas n√£o se limita apenas a isso, assim podendo ser instalado tambem em computadores.
+  
+  2 As vantagen s√£o muitas: A conseguir uma vaga de emprego t√£o desejada, j√° que uma pessoa que sabe informatica tende a ter mais vantagens no mercado de emprego, pelo fato de ser um conhecimento t√£o necess√°rio e vasto.
+  
+  3 Aplicada a vida proficional a inform√°tica se prova muito importante j√° que como eu disse antes ela te proporciona mais oportunidades. A inform√°tica √© algo indispens√°vel.Hoje em dia j√° que grande parte das maquinas possuem programa√ß√£o. A inform√°tica se divide em varios ramos de trabalhon taes como, engenharia c√≠vil e administra√ß√£o.
