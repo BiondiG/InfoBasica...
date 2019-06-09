@@ -11,3 +11,4 @@
   5 O PC é indispensavel hoje em dia. Para algumas pessoas é o proprio local de trabalho; objeto de pesquisa pois em poucos segundos consegui-se informaçoes, que antes era preciso horas e horas em livros para conseguir e ainda entretenimento, com uma imensidao de jogos e series. 
   
   6 Ficaria totalmente "desligado" da arvore que é o mundo hoje. Pois nao existe alguma coisa que nao esteja interligado com a internet. 
+7. Para mim a informatica é uma da profisões que mais vai se atualizar no mercado de trabalho, chegando ao ponto que vai ser mais essencial do que medicina e direito, pois já que o mundo está se atualizando mais e mais, no futuro vamos precisar mais de programadores e tecnicos de informatica, do que vamos precisar de medicos, mas é claro que isto vai se concretizar daqui a no minimo 25 anos, sendo o mais otimista possivel.
