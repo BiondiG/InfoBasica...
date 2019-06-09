@@ -6,3 +6,8 @@
   2 As vantagen são muitas: A conseguir uma vaga de emprego tão desejada, já que uma pessoa que sabe informatica tende a ter mais vantagens no mercado de emprego, pelo fato de ser um conhecimento tão necessário e vasto.
   
   3 Aplicada a vida proficional a informática se prova muito importante já que como eu disse antes ela te proporciona mais oportunidades. A informática é algo indispensável.Hoje em dia já que grande parte das maquinas possuem programação. A informática se divide em varios ramos de trabalhon taes como, engenharia cívil e administração.
+ 4 Técnico em informatica, analisnta de redes, web designer 
+  
+  5 O PC é indispensavel hoje em dia. Para algumas pessoas é o proprio local de trabalho; objeto de pesquisa pois em poucos segundos consegui-se informaçoes, que antes era preciso horas e horas em livros para conseguir e ainda entretenimento, com uma imensidao de jogos e series. 
+  
+  6 Ficaria totalmente "desligado" da arvore que é o mundo hoje. Pois nao existe alguma coisa que nao esteja interligado com a internet. 
