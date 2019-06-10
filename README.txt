@@ -1,7 +1,7 @@
 "# Clan" 
 "# Clan" 
  
-  1) whatsapp e Email: o whatsapp é um programa cujo o intúito é de trasmição de mensagens, audios e imagens mas não é só isso,ele tambem realiza chamadas de audio e video. O aparelho padrão que é utilizado como plataforma para instalação do whatsapp é o telefone celular mas não se limita apenas a isso, assim podendo ser instalado tambem em computadores.
+  1) whatsapp e Email: o whatsapp é um programa cujo o intúito é de trasmição de mensagens, audios e imagens mas não é só isso,ele tambem realiza chamadas de audio e video. O aparelho padrão que é utilizado como plataforma para instalação do whatsapp é o smartphone mas não se limita apenas a isso, assim podendo ser instalado tambem em computadores.
   
   2) As vantagen são muitas: A conseguir uma vaga de emprego tão desejada, já que uma pessoa que sabe informática tende a ter mais vantagens no mercado de emprego, pelo fato de ser um conhecimento tão necessário e vasto.
   
